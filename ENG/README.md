@@ -16,7 +16,7 @@
 - White pepper
 - Nutmeg
 - Olive oil
-- Quiche dough (homemade or store-bought)
+- Quiche dough
 
 **Instructions:**
 
