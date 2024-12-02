@@ -4,8 +4,7 @@
 
 ### [Deutsch hier!](https://github.com/diegomics/izw_xmas24/blob/main/README.md)
 
-### [English here!](https://github.com/diegomics/izw_xmas24/tree/main/ENG)
-
+### [English here!](https://github.com/diegomics/izw_xmas24/blob/main/ENG/README.md)
 ---
 **Ingredientes:**
 - Cebollas
