@@ -4,7 +4,7 @@
 
 ### [Deutsch hier!](https://github.com/diegomics/izw_xmas24)
 
-### [English here!](https://github.com/diegomics/izw_xmas24/ENG)
+### [English here!](https://github.com/diegomics/izw_xmas24/tree/main/ENG)
 
 ---
 **Ingredientes:**
