@@ -21,46 +21,38 @@
 
 **Zubereitung:**
 
-Die in Streifen geschnittenen Zwiebeln in Olivenöl anbraten, bis sie leicht goldbraun sind.
-![]()
+> Die in Streifen geschnittenen Zwiebeln in Olivenöl anbraten, bis sie leicht goldbraun sind.
+![](pics/IMG_4918.jpeg)
 
 <br/>
 
-Vom Herd nehmen, die geriebenen Kartoffeln hinzufügen und vermischen.
-![]()
+> Vom Herd nehmen, die geriebenen Kartoffeln hinzufügen und vermischen.
+![](pics/IMG_4919.jpeg)
 
 <br/>
 
-Ricotta einrühren und vermischen.
-![]()
+> Ricotta einrühren und vermischen.
+![](pics/IMG_4920.jpeg)
 
 <br/>
 
-Die Eier hinzufügen und erneut mischen.
-![]()
+> Die Eier hinzufügen und erneut mischen.
+![](pics/IMG_4921.jpeg)
 
 <br/>
 
-Den geriebenen Käse hinzufügen und gut vermengen.
-![]()
+>Den geriebenen Käse hinzufügen und gut vermengen.
+![](pics/IMG_4922.jpeg)
 
 <br/>
 
-Mit Salz, Pfeffer und Muskatnuss nach Geschmack würzen.
-![]()
+>Mit Salz, Pfeffer und Muskatnuss nach Geschmack würzen. Die Mischung in eine mit Quiche-Teig ausgelegte Form geben. Im vorgeheizten Ofen bei mittlerer Hitze (ca. 180 °C) backen, bis die Oberfläche goldbraun ist.
+![](pics/IMG_4923.jpeg)
+![](pics/IMG_4924.jpeg)
 
 <br/>
 
-Die Mischung in eine mit Quiche-Teig ausgelegte Form geben.
-![]()
-
-<br/>
-
-Im vorgeheizten Ofen bei mittlerer Hitze (ca. 180 °C) backen, bis die Oberfläche goldbraun ist.
-![]()
-
-<br/>
-
-Voilà!
-![]()
+*Voilà!*
+![](pics/IMG_4925.jpeg)
+![](pics/IMG_4926.jpeg)
 <br/>
