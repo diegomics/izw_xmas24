@@ -16,7 +16,7 @@
 - Pimienta blanca
 - Nuez moscada
 - Aceite de oliva
-- Masa para quiche (casera o comprada)
+- Masa para quiche
 
 **Preparación:**
 
