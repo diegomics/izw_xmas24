@@ -22,37 +22,38 @@
 **Instructions:**
 
 >Cook the julienned onions in olive oil until just golden.
-![](pics/IMG_4918.jpeg)
+![](https://github.com/diegomics/izw_xmas24/blob/main/pics/IMG_4918.jpeg)
 
 <br/>
 
 >Once removed from the heat, add the grated potatoes and mix.
-![](pics/IMG_4919.jpeg)
+![](https://github.com/diegomics/izw_xmas24/blob/main/pics/IMG_4919.jpeg)
 
 <br/>
 
 >Incorporate the ricotta and mix.
-![](pics/IMG_4920.jpeg)
+![](https://github.com/diegomics/izw_xmas24/blob/main/pics/IMG_4920.jpeg)
 
 <br/>
 
 >Add the eggs and mix.
-![](pics/IMG_4921.jpeg)
+![](https://github.com/diegomics/izw_xmas24/blob/main/pics/IMG_4921.jpeg)
 
 <br/>
 
 >Add the shredded cheese and mix.
-![](pics/IMG_4922.jpeg)
+![](https://github.com/diegomics/izw_xmas24/blob/main/pics/IMG_4922.jpeg)
 
 <br/>
 
 >Season with salt, pepper, and nutmeg to taste. Pour the mixture into a pan lined with quiche dough. Bake in a moderate oven (180 °C) until golden.
-![](pics/IMG_4923.jpeg)
-![](pics/IMG_4924.jpeg)
+![](https://github.com/diegomics/izw_xmas24/blob/main/pics/IMG_4924.jpeg)
+![](https://github.com/diegomics/izw_xmas24/blob/main/pics/IMG_4923.jpeg)
 
 <br/>
 
 *Voilà!*
-![](pics/IMG_4925.jpeg)
+![](https://github.com/diegomics/izw_xmas24/blob/main/pics/IMG_4926.jpeg)
+![](https://github.com/diegomics/izw_xmas24/blob/main/pics/IMG_4925.jpeg)
 ![](pics/IMG_4926.jpeg)
 <br/>
