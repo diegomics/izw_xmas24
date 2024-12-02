@@ -2,9 +2,9 @@
 
 #### Vegetarian quiche for IZW's Christmas party on December 3rd, 2024
 
-### [Deutsch hier!]()
+### [Deutsch hier!](https://github.com/diegomics/izw_xmas24)
 
-### [Español aquí!]()
+### [Español aquí!](https://github.com/diegomics/izw_xmas24/ESP)
 
 ---
 **Ingredients:**
