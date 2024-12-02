@@ -1,6 +1,6 @@
-# Zwiebel-Käse-Quiche
+# Zwiebel-Käse-Quiche 🧅🧀❤️
 
-#### Vegetarische Quiche für die Weihnachtsfeier der IZW am 3. Dezember 2024
+#### Vegetarische Quiche für die Weihnachtsfeier der IZW am 3. Dezember 2024 🎄
 
 ### [English here!](https://github.com/diegomics/izw_xmas24/blob/main/ENG/README.md)
 
