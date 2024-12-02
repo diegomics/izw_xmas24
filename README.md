@@ -16,7 +16,7 @@
 - Weißer Pfeffer
 - Muskatnuss
 - Olivenöl
-- Quiche-Teig (hausgemacht oder gekauft)
+- Quiche-Teig
 
 **Zubereitung:**
 
