@@ -47,12 +47,12 @@
 <br/>
 
 >Mit Salz, Pfeffer und Muskatnuss nach Geschmack würzen. Die Mischung in eine mit Quiche-Teig ausgelegte Form geben. Im vorgeheizten Ofen bei mittlerer Hitze (ca. 180 °C) backen, bis die Oberfläche goldbraun ist.
-![](pics/IMG_4923.jpeg)
 ![](pics/IMG_4924.jpeg)
+![](pics/IMG_4923.jpeg)
 
 <br/>
 
 *Voilà!*
-![](pics/IMG_4925.jpeg)
 ![](pics/IMG_4926.jpeg)
+![](pics/IMG_4925.jpeg)
 <br/>
