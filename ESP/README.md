@@ -2,7 +2,7 @@
 
 #### Quiche vegetariana para la fiesta de Navidad de IZW del 3 de diciembre de 2024
 
-### [Deutsch hier!](https://github.com/diegomics/izw_xmas24)
+### [Deutsch hier!](https://github.com/diegomics/izw_xmas24/blob/main/README.md)
 
 ### [English here!](https://github.com/diegomics/izw_xmas24/tree/main/ENG)
 
