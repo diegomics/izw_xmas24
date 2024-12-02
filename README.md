@@ -2,10 +2,9 @@
 
 #### Vegetarische Quiche für die Weihnachtsfeier der IZW am 3. Dezember 2024
 
-### [English here!](https://github.com/diegomics/izw_xmas24/tree/main/ENG)
+### [English here!](https://github.com/diegomics/izw_xmas24/blob/main/ENG/README.md)
 
-### [Español aquí!](https://github.com/diegomics/izw_xmas24/tree/main/ESP)
-
+### [Español aquí!](https://github.com/diegomics/izw_xmas24/blob/main/ESP/README.md)
 ---
 **Zutaten:**
 - Zwiebeln
