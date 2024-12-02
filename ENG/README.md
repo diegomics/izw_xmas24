@@ -4,7 +4,7 @@
 
 ### [Deutsch hier!](https://github.com/diegomics/izw_xmas24)
 
-### [Español aquí!](https://github.com/diegomics/izw_xmas24/tree/main/ESP)
+### [Español aquí!](https://github.com/diegomics/izw_xmas24/tree/main/ESP/README.md)
 ---
 **Ingredients:**
 - Onions
