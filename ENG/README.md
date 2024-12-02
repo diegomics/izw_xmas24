@@ -1,6 +1,6 @@
-# Onion and Cheese Quiche
+# Onion and Cheese Quiche 🧅🧀❤️
 
-#### Vegetarian quiche for IZW's Christmas party on December 3rd, 2024
+#### Vegetarian quiche for IZW's Christmas party on December 3rd, 2024 🎄
 
 ### [Deutsch hier!](https://github.com/diegomics/izw_xmas24/blob/main/README.md)
 
