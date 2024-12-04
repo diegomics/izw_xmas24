@@ -51,7 +51,7 @@
 
 <br/>
 
-*Voilà!*
+*Voilà!* (Only the round one made it to the party)
 ![](https://github.com/diegomics/izw_xmas24/blob/main/pics/IMG_4926.jpeg)
 ![](https://github.com/diegomics/izw_xmas24/blob/main/pics/IMG_4925.jpeg)
 ![](pics/IMG_4926.jpeg)
