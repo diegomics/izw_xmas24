@@ -51,7 +51,7 @@
 
 <br/>
 
-*Voilà!*
+*Voilà!* (Sólo el redondo llegó a la fiesta)
 ![](https://github.com/diegomics/izw_xmas24/blob/main/pics/IMG_4926.jpeg)
 ![](https://github.com/diegomics/izw_xmas24/blob/main/pics/IMG_4925.jpeg)
 ![](pics/IMG_4926.jpeg)
