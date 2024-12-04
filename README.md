@@ -51,7 +51,7 @@
 
 <br/>
 
-*Voilà!*
+*Voilà!* (Nur die runde hat es zur Party geschafft)
 ![](pics/IMG_4926.jpeg)
 ![](pics/IMG_4925.jpeg)
 <br/>
